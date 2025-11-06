@@ -6,7 +6,9 @@ And she's google account got hacked, she didn't linked phone number and forgot p
 I would ask some questions:
 1. Do she actually can reset password if she prove thats her account?
 2. What proof she can send to approve
+
 Faq:
+
 1. I don't need her account, i just tipping how to do it for her
 2. She logged in, so she will ask moderation from her account (yes i just asking tips)
 3. Please ask questions to @dmitromeow@gmail.com
