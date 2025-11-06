@@ -11,6 +11,7 @@ Faq:
 
 1. I don't need her account, i just tipping how to do it for her
 2. She logged in, so she will ask moderation from her account (yes i just asking tips)
-3. Please ask questions to @dmitromeow@gmail.com
+3. She's google account is @ira745045gmail.com
 
+Please ask questions to @dmitromeow@gmail.com
 Thank for your advice!
